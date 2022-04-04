@@ -1,5 +1,7 @@
 # Zoe Dooley
 
+![](https://media-exp1.licdn.com/dms/image/C5603AQHE6j3xZYCHVA/profile-displayphoto-shrink_400_400/0/1589862222673?e=1654732800&v=beta&t=Tbk9QRmPLTSq8Hj7easQzTA27ifP1WrhRxcBd4vcyLM)
+
 zoeadooley@gmail.com
 
 www.linkedin.com/in/zoe-dooley-245a23171
