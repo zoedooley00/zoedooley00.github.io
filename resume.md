@@ -4,13 +4,13 @@
 
 zoeadooley@gmail.com
 
-www.linkedin.com/in/zoe-dooley-245a23171
+[LinkedIn](www.linkedin.com/in/zoe-dooley-245a23171)
 
 # Education
 ## University of Washington (Seattle, WA)
-Major: Geography Data Science    
-Minor: Informatics    
-Intended Graduation Date: June 11, 2022    
+> Major: Geography Data Science    
+> Minor: Informatics    
+> Intended Graduation Date: June 11, 2022    
 
 # Summary
 
